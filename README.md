@@ -1,4 +1,4 @@
-# script hack map for Aov Eu
+# script hack map for Aov Taiwan
 enjoy details guide here https://is.gd/ibexiu
 ```
 https://is.gd/ibexiu
